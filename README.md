@@ -14,4 +14,4 @@ a programação por meio do Alura e Rocketseat
 ★彡**entre e contato comigo pelo meu email instituional**彡★
     00001114947374sp@al.educacao.sp.gov.br
 ═════════════════════════════════ ♢.✰.♢ ═════════════════════════════════
-![](https://media1.tenor.com/m/eZbarzKIwdIAAAAd/cat-cat-stare.gif)
+![](https://media.tenor.com/d4sG_BgyH1cAAAAi/maxwell-cat.gif)
