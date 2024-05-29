@@ -12,6 +12,8 @@ dos generos terror, suspense e fantasia.
 a programação por meio do Alura e Rocketseat
 
 ★彡**entre e contato comigo pelo meu email instituional**彡★
+
     00001114947374sp@al.educacao.sp.gov.br
 ═════════════════════════════════ ♢.✰.♢ ═════════════════════════════════
+
 ![](https://media.tenor.com/d4sG_BgyH1cAAAAi/maxwell-cat.gif)
